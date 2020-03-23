@@ -1,1 +1,2 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Developed skills to work under *high-stress situations* while maintaining __exceptional performance** and **work quality__.
+__Diligent__ person with 5 months of experience and a proven knowledge   of customer satisfaction, hospitality management, inventory planning and control. 
